@@ -34,7 +34,7 @@ Paradoxically - those who threw the most support behind Parris were unaffiliated
 
 It appears while much has changed over the past 300 years, somethings remain the same.
 Those of us with the most to lose are sandwiched between those with money, and power and one third and very important variable, time.
-When the largest portion of a populace are si,mply trying to make ends meet, they do not have TIME to engage politically in order to safeguard their rights.
+When the largest portion of a populace are simply trying to make ends meet, they do not have TIME to engage politically in order to safeguard their rights.
 
 One last note, the largest group opposing Samuel Parris were the boys of the village.  Youths below age 20, mostly teenagers with no affiliation to the church.
 These were the non-conformists of the era, lacking in political power but quite capable of rabble rousing.  These boys, are my people :)
